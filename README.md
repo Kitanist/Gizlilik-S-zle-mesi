@@ -19,7 +19,7 @@ f.	Kişisel verilerin silinmesini veya yok edilmesini isteme,
 g.	(e) ve (f) bentleri uyarınca yapılan işlemlerin, kişisel verilerin aktarıldığı üçüncü kişilere bildirilmesini isteme,
 h.	İşlenen verilerin münhasıran otomatik sistemler vasıtasıyla analiz edilmesi suretiyle kişinin kendisi aleyhine bir sonucun ortaya çıkmasına itiraz etme,
 i.	Kişisel verilerin kanuna aykırı olarak işlenmesi sebebiyle zarara uğraması hâlinde zararın giderilmesini talep etme, haklarına sahiptir.
-Yukarıda sayılan haklarınızı kullanmak üzere email@site.com üzerinden bizimle iletişime geçebilirsiniz.
+Yukarıda sayılan haklarınızı kullanmak üzere eneskerem2516@gmail.com üzerinden bizimle iletişime geçebilirsiniz.
 İletişim
 Sizlere hizmet sunabilmek amaçlı analizler yapabilmek için, sadece gerekli olan kişisel verilerinizin, işbu gizlilik ve kişisel verilerin işlenmesi politikası uyarınca işlenmesini, kabul edip etmemek hususunda tamamen özgürsünüz. Siteyi kullanmaya devam ettiğiniz takdirde kabul etmiş olduğunuz tarafımızca varsayılacak olup, daha ayrıntılı bilgi için bizimle eneskerem2516@gmail.com e-mail adresi üzerinden iletişime geçmekten lütfen çekinmeyiniz.
 
